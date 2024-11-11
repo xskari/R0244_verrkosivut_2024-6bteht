@@ -1,0 +1,1 @@
+skippasin workshopin, katotaan jos ymmärrän itekseni
